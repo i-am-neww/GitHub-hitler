@@ -1,5 +1,5 @@
 AROMAL J. present
-Devanandha. L.S = Present 
+Devanandha. L.S = fake friend
 Anjali S
 Amrutha R S 
 Aparna A
